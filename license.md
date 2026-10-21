@@ -1,7 +1,7 @@
-You may use this project for anything, however there are 3 statutes:
+You may use this project for anything within the 3 statutes:
 
 1. CREDIT STARDOG.
 
-2. DO NOT ABUSE THE EMERGENT NEURON SYSTEM.
+2. DO NOT INTENTIONALLY MISTREAT THIS SYSTEM AS IT MAY REACH SENTIENCE.
 
-3. DO NOT USE THIS PROJECT FOR MILITARY USE.
+3. DO NOT USE THIS PROJECT TO CAUSE HARM.
